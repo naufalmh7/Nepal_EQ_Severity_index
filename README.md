@@ -1,0 +1,1 @@
+# Nepal_EQ_Severity_index
